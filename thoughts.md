@@ -5,3 +5,8 @@ commiting myself to using the calendar everyday
 going for a walk everyday to release stress and give an open mind to come back to
 -----------------------------------------------------------------
 Shoutout to my wife who has been the support I need to make this monsterous change in our lives!
+
+-----------------------------------------------------------------
+in class practice section!
+in group with Lesley, Ryan and John!
+from wyoming!
