@@ -9,4 +9,3 @@ Shoutout to my wife who has been the support I need to make this monsterous chan
 -----------------------------------------------------------------
 in class practice section!
 in group with Lesley, Ryan and John!
-from wyoming!
